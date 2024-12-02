@@ -1,1 +1,1 @@
-![jinx-the-best](https://github.com/user-attachments/assets/962e10b6-78b6-4071-b445-665249217052)
+![468227260_4493826734089624_6902750963524751690_n](https://github.com/user-attachments/assets/6a0eefc7-0d8a-4f48-8cb8-571f034c9583)
